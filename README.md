@@ -9,7 +9,7 @@
 
 - 📫 Você me acha **laurafernandes.bdo@gmail.com**
 
-- 📄 Estou em transição de carreira para a área de Analista de Dados [https://www.linkedin.com/in/laura--fernandes-/](https://www.linkedin.com/in/laura--fernandes-/)
+- 📄 Estou trabalhando na área de Analise de Dados, com foco em visualização de dados [https://www.linkedin.com/in/laura--fernandes-/](https://www.linkedin.com/in/laura--fernandes-/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
